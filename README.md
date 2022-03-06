@@ -1,2 +1,2 @@
-# lxgj.github.io
+# lxqj.github.io
 鲁迅全集
